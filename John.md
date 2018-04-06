@@ -51,3 +51,20 @@
 | 12          | Believers will do what I've done and greater                                     |
 | 13&ndash;14 | I'll do what's asked in My name                                                  |
 | 15          | If you love Me, keep My commandments                                             |
+
+## Divisions
+
+| Division | Verses      | Summary                          |
+| -------- | ----------- | -------------------------------- |
+| 1        | 1&ndash;6   | I am the way to heaven.          |
+| 2        | 6&ndash;11  | I and the Father are one.        |
+| 3        | 12&ndash;15 | I'll do what's asked in My name. |
+
+## Subject
+
+Jesus is and is the way to the Father.
+
+## Aim
+
+## Application
+
