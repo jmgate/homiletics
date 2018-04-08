@@ -66,5 +66,10 @@ Jesus is and is the way to the Father.
 
 ## Aim
 
+Believe that Jesus is the way to God, that He is God, and that He glorifies God.
+
 ## Application
 
+1. What do you believe is the way to heaven?
+2. As you reflect on your day, have the things you said been spoken on your own initiative?  Or are you allowing the Holy Spirit abiding in you to direct your works?
+3. What's something you can boldly ask God for in Jesus' name?
